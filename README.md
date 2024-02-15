@@ -1,6 +1,6 @@
 
 ## 🐱‍🚀 Luigi Pallarca 
-**`Full Stack Web Developer / Software Developer`**
+**`Full Stack Web Developer / Software Engineer`**
 
 ##### Contacts
 <a href="https://www.linkedin.com/in/luigi-pallarca-1b8593136">
